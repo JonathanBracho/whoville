@@ -1,4 +1,4 @@
 # whoville
 who land
 
-so i went to a bar, and i got smacked :)
+so i went to a bar, and i got whacked :)
